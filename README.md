@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Cybersecurity
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... Cybersecurity majors
-- 📫 How to reach me ... dangelocapelljr@gmail.com
+- 📫 How to reach me ... dcap.jr3000@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I go to the University of Cincinnati
 
